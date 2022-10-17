@@ -1,1 +1,0 @@
-![Green and Brown Hand Drawn Black History Month Social and Emotional Learning Google Classroom Header](https://user-images.githubusercontent.com/14990112/117708958-44ebc180-b185-11eb-8068-079f4010d93d.png)
